@@ -73,6 +73,7 @@
 ![vipcheap首页](https://github.com/user-attachments/assets/ba02a117-87e0-4e38-8488-6cc51953e3fa)
 
 > 👉 **亲测可用的代充入口**：[点此前往页面开通（按步骤操作即可）](https://vipcheap.com/product/chatgpt-plus))
+> 由于官方策略调整，注意价格可能会有变动，懂的都懂
 
 ---
 
